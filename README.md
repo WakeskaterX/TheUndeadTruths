@@ -7,3 +7,5 @@ So, this is going to be an open source book, laying out my revision of my first 
 My only request is that you be kind, I don't write often, so I am no expert on story telling.
 
 So feel free to create issue, pull requests if you have typo fixes, and follow me along as I slowly rewrite this novel.
+
+Original Material © 2016 by Jason Carter
