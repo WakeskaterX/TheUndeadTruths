@@ -1,0 +1,23 @@
+###Escaping the Darkness, by John Williams
+
+####An Excerpt from a Chapter detailing an early AZF Meeting
+
+**Nov 4, 2025**
+
+We sat there, cold and afraid of the monsters we were facing.  I looked around and saw men and women from all walks of life:  soldiers, policemen, teachers, the elderly and young.  These were people who wanted to help but were looking for leadership.  They had come, like I, to this meeting to be a part of founding a new force to stop the Zombie threat:  The Anti-Zombie Force, the AZF.
+
+Many men and women from the RMGO, the Rocky Mountain Gun Organization, came bringing their large arsenals of assorted rifles and pistols to donate to the cause.  Gun owners from all over Colorado were here at this meeting dropping off their spare ammunition and weapons to be used in training the men and women here and for defense.
+
+The failure of the Army assault on the Zombie hideout was chilling to think about.  How could these monsters use weapons?   Zombies weren’t supposed to be intelligent.  They weren’t supposed to be able to use complicated weaponry and lay traps.  When the breakout began two months prior in San Francisco, those of us who were familiar with our pistols and rifles thought, "The Zombie Apocalypse has really happened!", and we thought we were ready to fight the simple minded brutes.  Oh how wrong we were.
+
+The leader of the meeting stood up at the front of the room and silence fell across us.  Jason Hawk, the Swiftshot, a nickname that had recently spread throughout the towns, looked at us with tired, resigned eyes.  He was an old marine, long since retired but still just as accurate with a pistol as he ever had been.  In the attack on Fort Collins a couple nights ago, he was one of the few people to kill any of the Zombies.  He killed thirteen of them with just the .45 magnum near his bedside.  All thirteen had bullet holes through the left eye socket and out the back.  He was the best thing we had at the time, so we looked to him with hope.
+
+"These are dark times," he began solemnly.  "You have faced terrible tragedy and misery these past few days.  Our military cannot help us now: what we do have is scarce and spread thin.  The time for grieving is over.  You must steel yourselves.  I will not lie to you, many of you will die.  But by fighting, you have a chance.  What we face has never been dealt with before and unfortunately we don’t have a squadron of elite Marines to take them out.  We must band together to become warriors, to become defenders.
+
+"No longer are you a civilian.  No longer are you a teacher.  You are not a police officer.  You are not a soldier in the Army."  He stared us down intently, seemingly weighing our thoughts and resolve.
+
+"We are now the AZF."  He said firmly.  "Our goal is this:  to kill those undead bastards.  Every.  Last.  One.  All of you must get this in your head now:  your life exists for the sake of killing what should be dead.  If you die in the attempt, it will be a worthy death.  It certainly is better than the alternative.
+
+"You must train your mind, your body and your skills to become a ruthless killer.  If you knew the person before they were turned into a zombie, then the only thing you can do for them is to give them a swift death so that they may enjoy death in quiet.  Whatever is bringing these people back from the grave or changing them from the humans they once were does so against their will.  The only reprieve is death.  If you hesitate, you will die.  From now on, we begin training ourselves to become the elite.  For you men and women from the police forces and from the military, this will be familiar.  You former civilians will have to work harder than you ever have.  This will be difficult as you are behind those who already have training.  Starting tomorrow..."  He continued on with a training regimen for the lot of us.  It included weapons training, physical training and wilderness survival.
+
+The speech gave us hope.  We knew that hope would carry us when times got dark, when things seemed bleak, that it would be hope that helped us persevere to victory.  After that meeting we felt emboldened, strengthened and ready to fight and take back our freedom.  We looked around and gave the best smiles we could muster: grim, but genuine.  Looking back now, I am glad I did not know how many of us would survive.  For if I had known what happened over the next few weeks, my hope would have been crushed.
