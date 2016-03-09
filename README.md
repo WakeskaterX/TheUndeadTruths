@@ -8,4 +8,4 @@ My only request is that you be kind, I don't write often, so I am no expert on s
 
 So feel free to create issue, pull requests if you have typo fixes, and follow me along as I slowly rewrite this novel.
 
-Original Material © 2016 by Jason Carter
+Original Material © 2013-2016 by Jason Carter
